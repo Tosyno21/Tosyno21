@@ -1,5 +1,5 @@
-### Hi there friend
-Hi there! I'm a UI/UX Designer with over 4 years experience. I'm open to projects and collaborations
+
+#### Hi there! I'm a UI/UX Designer with over 4 years experience. I'm open to projects and collaborations
 
 Send a DM 👋
 
