@@ -1,7 +1,7 @@
 
 #### Hi there! I'm a Frontend Web Devloper | UI/UX Designer with over 4 years experience. I'm open to projects and collaborations
 
-Send a DM 👋
+Send a DM today 👋
 
 <!--
 **Tosyno21/Tosyno21** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
