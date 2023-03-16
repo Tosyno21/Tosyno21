@@ -1,5 +1,5 @@
 
-#### Hi there! I'm a Frontend Web Devloper | UI/UX Designer with over 4 years experience. I'm open to projects and collaborations.
+#### Hi there! I'm a Frontend Web Developer | UI/UX Designer with over 4 years experience. I'm open to projects and collaborations.
 
 Send a DM today 👋
 
