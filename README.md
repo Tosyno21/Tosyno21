@@ -1,5 +1,5 @@
 
-#### Hi there! I'm a Product | UI/UX Designer Frontend Developer | with over 4 years of experience. I'm open to projects and collaborations
+#### Hi there! I'm a Product | UI/UX Designer | Frontend Developer |  with over 4 years of experience. I'm open to projects and collaborations
 
 Send a DM 👋
 
